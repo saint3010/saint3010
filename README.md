@@ -20,8 +20,8 @@ Check out my live portfolio:
 👉 [saintgraphics.github.io/saint-graphics](https://saintgraphics.github.io/saint-graphics)
 
 ### 📲 Let’s Connect
-- Instagram: [@saintgraphics_](https://instagram.com/saintgraphics_)
-- Email: saintdesigns@example.com
+- Instagram: [@saintgraphics_](https://instagram.com/thesaint_one)
+- Email: quadriakintunde3010.com
 
 ---
 
